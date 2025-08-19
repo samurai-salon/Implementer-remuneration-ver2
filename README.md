@@ -1,1 +1,1 @@
-# Implementer-remuneration-ver2
+# 詳細説明付き✨
